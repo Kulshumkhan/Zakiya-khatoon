@@ -1,1 +1,3 @@
-# Zakiya-khatoon
+--> How you can reach me...
+->>through Linkdin 
+->> through Email  Khatoonzakiya03@gmail.com
