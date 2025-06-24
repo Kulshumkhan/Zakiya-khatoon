@@ -2,7 +2,7 @@
 
 ### 💻 Aspiring Software Developer | Java Enthusiast | Open Source Learner
 
-I'm a Computer Science undergraduate passionate about building real-world projects, learning backend technologies, and contributing to open-source communities.
+I'm a Computer Science  and Engineering ,third yr student passionate about building real-world projects, learning backend technologies, and contributing to open-source communities.
 
 
 
